@@ -28,4 +28,4 @@ Breaking things. Then building smarter ones. ⚔️🤖
 ---
 
 ### 📫 Connect:
-[LinkedIn](https://www.linkedin.com/in/yuvchoudhary2630) • [Portfolio](#) • [Email](mailto:yuvrajhash@gmail.com)
+[LinkedIn](https://www.linkedin.com/in/yuvchoudhary2630) • [Portfolio](#) • [Email](mailto:choudharyt2022@gmail.com)
